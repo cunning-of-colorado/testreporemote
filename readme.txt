@@ -1,3 +1,3 @@
 Hi Jason.
-How are you doing buddy.
+How are you doing bud.
 Well, Jason, well.
