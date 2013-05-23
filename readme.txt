@@ -1,3 +1,3 @@
 Hi Jason.
-How are you doing amigo.
+How are you doing friend.
 Well, Jason, well.
